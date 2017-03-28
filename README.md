@@ -1,0 +1,1 @@
+# magyapp.github.io
